@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @fored07
-- 👀 I luv huyen trang 3000
+- 👀 I luv u 3000
 
 <!---
 fored07/fored07 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
